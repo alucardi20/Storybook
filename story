@@ -5,3 +5,5 @@ But Conan's drive was intense
 Conan survived his childhood
 Conan grew up to be a strapping young lad
 He was full of vigour
+Conan is now a teenager and has the usual teenage issues.
+Conan is angry all the time and listens to metal
